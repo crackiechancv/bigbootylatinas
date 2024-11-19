@@ -1,2 +1,2 @@
 # bigbootylatinas
-<img src="https://imgflip.com/gif/44jjm9.gif" alt="assshaking">
+<img src="https://i.imgflip.com/44jjm9.gif">
