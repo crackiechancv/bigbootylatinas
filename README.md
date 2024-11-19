@@ -1,2 +1,2 @@
 # bigbootylatinas
-<img src="<img src="example.gif" alt="Example GIF">" alt="assshaking">
+<img src="https://imgflip.com/gif/44jjm9" alt="assshaking">
